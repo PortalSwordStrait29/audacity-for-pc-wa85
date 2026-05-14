@@ -1,4 +1,4 @@
-# 
+# Enhance Audacity for PC | Audacity for Windows with rare Audacity for PC | Audacity for Windows Panel | spectrogram-view + effects-library, the #1 panel. Includes spectrogram-view
 
 
 
